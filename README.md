@@ -1,1 +1,0 @@
-# Withings-internship-test
